@@ -1,2 +1,10 @@
 # TR4KERAT
 _R4T
+
+HTTP://WWW.TR4KECREW.EU
+HTTP://WWW.FACEBOOK.FR/UNITYSOW
+https://www.facebook.com/blazer.hat.3
+
+Début du Projet : 06/02/2018
+
+AVANCEMENT : [PROCHAINEMENT]
